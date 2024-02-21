@@ -1,0 +1,1 @@
+![SimulatorScreenRecording-iPhone15Pro-2024-02-21at15 34 53-ezgif com-video-to-gif-converter](https://github.com/Asadbek-IP/TelegramAnimationThemeChange/assets/57528599/b717569a-f7e9-4ecf-be6d-44c473dfeeca)
